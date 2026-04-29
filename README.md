@@ -1,5 +1,5 @@
 # 💫 About Me:
-Hey! I’m Kate Yi :D<br><br>💻 I love solving puzzles and learning new things.<br>🌱 I'm always learning, always experimenting<br><br>Here to learn deeply, build cool things, and grow with others 🚀
+Hey! I’m Kate Yi :D<br><br>💻 I love solving puzzles and learning new things<br>🌱 I'm always learning, always experimenting<br><br>Here to learn deeply, build cool things, and grow with others 🚀
 
 
 ## 🌐 Socials:
